@@ -39,23 +39,23 @@
 
 
 
-![1](https://github.com/LabanYB/WeRobotManager1/tree/master/images/1.png)
+![1](https://file.xinfu1818.com/pic/images/1.png)
 
-![2](https://github.com/LabanYB/WeRobotManager1/tree/master/images/2.png)
+![2](https://file.xinfu1818.com/pic/images/2.png)
 
-![3](https://github.com/LabanYB/WeRobotManager1/tree/master/images/3.png)
+![3](https://file.xinfu1818.com/pic/images/3.png)
 
-![4](https://github.com/LabanYB/WeRobotManager1/tree/master/images/4.png)
+![4](https://file.xinfu1818.com/pic/images/4.png)
 
-![5](https://github.com/LabanYB/WeRobotManager1/tree/master/images/5.png)
+![5](https://file.xinfu1818.com/pic/images/5.png)
 
-![6](https://github.com/LabanYB/WeRobotManager1/tree/master/images/6.png)
+![6](https://file.xinfu1818.com/pic/images/6.png)
 
-![7](https://github.com/LabanYB/WeRobotManager1/tree/master/images/7.png)
+![7](https://file.xinfu1818.com/pic/images/7.png)
 
-![8](https://github.com/LabanYB/WeRobotManager1/tree/master/images/8.png)
+![8](https://file.xinfu1818.com/pic/images/8.png)
 
-![9](https://github.com/LabanYB/WeRobotManager1/tree/master/images/9.png)
+![9](https://file.xinfu1818.com/pic/images/9.png)
 
 
 
